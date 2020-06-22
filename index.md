@@ -10,3 +10,5 @@ Among others he played the role of Angelus in "Buffy the Vampire Slayer", which 
 ## Quotes
 One of his quotes:
 > I have a very clear vision as to what I want at the end of my prep, and then I throw it out and let the creative process take over.
+## Image
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/6/60/David_Boreanaz_by_Gage_Skidmore.jpg/800px-David_Boreanaz_by_Gage_Skidmore.jpg" />
