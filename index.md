@@ -7,3 +7,6 @@ Among others he played the role of Angelus in "Buffy the Vampire Slayer", which 
 * honorable
 * honestly
 * authentic
+## Quotes
+One of his quotes:
+> I have a very clear vision as to what I want at the end of my prep, and then I throw it out and let the creative process take over.
